@@ -2,19 +2,22 @@
 
 D. Michael,
 
-Thank you for reading. Let me push back gently.
+You opened by calling the piece a "rant," a "waste of time," and the work of "tragically impaired religious voices." So let's not pretend this is a measured exchange. You're not critiquing. You're flinching.
 
-You called the piece legalism. But legalism is the doctrine that we must add our works to Christ's in order to be saved — and there's no such claim anywhere in the post. What the post actually does is take Yeshua at His word in Matthew 5: the man who hates his brother is a *murderer*, and the man who lusts has already committed *adultery* in his heart. If that diagnosis offends you, your quarrel isn't with me. It's with Him.
+Here is the actual issue: you have confused the gospel with affirmation. They are not the same thing.
 
-Paul called himself the chief of sinners (1 Tim 1:15). Isaiah, upon seeing the Lord, cried "Woe is me, I am undone, a man of unclean lips" (Isa 6:5). The tax collector in Luke 18, beating his breast — *"God be merciful to me, a sinner"* — went home justified. The religious man congratulating himself on his goodness did not. The gospel does not begin with self-affirmation. It begins with poverty of spirit (Matt 5:3).
+The gospel does not begin "you are fine." It begins "you were dead in your trespasses and sins" (Eph 2:1). It says "all have sinned and fall short of the glory of God" (Rom 3:23). It says "there is none righteous, no, not one" (Rom 3:10). It says "the heart is deceitful above all things, and desperately wicked" (Jer 17:9). And then — only then — does it announce that Messiah died for the *ungodly* (Rom 5:6).
 
-What you're calling "smashing the goodness of God" is in fact the precondition for receiving it. *"Those who are well have no need of a physician, but those who are sick"* (Mark 2:17). Erase the diagnosis and you have not magnified grace — you have made it unnecessary. The good news only becomes good *because* the bad news is true.
+Strip the diagnosis and you have not preserved grace. You have made grace meaningless. There is nothing to be saved from in your version of the gospel, because you cannot bear to name what is wrong. That is not good news. That is religious sentimentality wearing the costume of grace.
 
-The piece names sin honestly so that the cross can mean something honestly. That isn't old-time cranky religion. That's 1 John 1:8–10:
+You called the piece legalism. Legalism is the doctrine that we add works to Christ's in order to be saved. The piece says the opposite — it strips us of the lie that we have anything to add. What you are calling legalism is *honesty*. You can't tell the two apart anymore. That is the problem.
 
-> "If we say we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness."
+Yeshua said the hateful man is a murderer and the lustful man an adulterer (Matt 5:21–28). Calling yourself a thief and a murderer in light of His diagnosis isn't theatrics; it's agreement with the Judge. The publican in Luke 18 went home justified precisely *because* he beat his breast and named himself a sinner — and the man congratulating himself on the goodness of God, the one allergic to being diagnosed, did not. Read that parable again. Yeshua told it about this exact instinct.
 
-That isn't legalism. That's the front door of the gospel. Calling it a waste of time says more about where you're standing than about what was written.
+> "If we say we have no sin, we deceive ourselves, and the truth is not in us." (1 John 1:8)
 
-Grace and peace,
-Sergio
+That isn't old-time cranky religion. That is the apostle whose own gospel records that Yeshua wept, sweat blood, and was crushed for our iniquities. He didn't bleed for a people who were fine.
+
+You're not defending grace. You're protecting yourself from it.
+
+— Sergio
