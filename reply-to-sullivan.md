@@ -2,7 +2,7 @@
 
 Dr. Sullivan,
 
-If I had to guess from the tenor of your comment, I would guess Reformed. Forgive me if I'm wrong. I raise it because the charge you've made — that the piece is guilty of "advocacy of our unworthiness" — is a charge your own confessional tradition would not let you sustain. Permit me to lay out the texts and the testimony, and you can tell me where I've misread either.
+Your comment reads Reformed. The vocabulary, the cadences, the reflexes — they are unmistakable. Which is what makes the charge you've leveled so strange. You have accused the piece of "advocacy of our unworthiness" and "smashing the goodness of God." Those are charges your own confessional tradition cannot let you sustain without dismantling itself. Permit me to lay out the texts and the testimony, and you can show me where I have misread either.
 
 **1. What the piece actually does.**
 The piece takes Yeshua at His word in the Sermon on the Mount: that the one who hates his brother is guilty of murder, and the one who lusts has committed adultery in his heart (Matt 5:21–22, 27–28). Naming oneself a thief and a murderer in light of *that* diagnosis is not "smashing the goodness of God." It is confessing with the Judge. To object to the language is to object to His.
