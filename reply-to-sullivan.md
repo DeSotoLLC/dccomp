@@ -2,80 +2,48 @@
 
 Dr. Sullivan,
 
-Your comment reads Reformed. The vocabulary, the cadences, the reflexes — they are unmistakable. Which is what makes the charge you've leveled so strange. You have accused the piece of "advocacy of our unworthiness" and "smashing the goodness of God." Those are charges your own confessional tradition cannot let you sustain without dismantling itself. Permit me to lay out the texts and the testimony, and you can show me where I have misread either.
+Let me take your charges one at a time, because each one deserves a clear answer.
 
-**1. What the piece actually does.**
-The piece takes Yeshua at His word in the Sermon on the Mount: that the one who hates his brother is guilty of murder, and the one who lusts has committed adultery in his heart (Matt 5:21–22, 27–28). Naming oneself a thief and a murderer in light of *that* diagnosis is not "smashing the goodness of God." It is confessing with the Judge. To object to the language is to object to His.
+**"Not truth and grace."**
+John 1:14 says Yeshua was full of *grace and truth* — both, not one. Truth includes the diagnosis. Grace is what answers it. You cannot subtract the truth half of that verse and claim to have preserved the grace half. The piece names sin honestly so that grace has something to actually do.
 
-**2. The biblical doctrine you appear to be resisting.**
-The Scriptures do not treat unworthiness as a depressive posture to be corrected by better self-talk. They treat it as the prerequisite to any honest standing before God:
+**"Legalism that undermines God's word."**
+Legalism is the doctrine that we must add our works to Christ's in order to be saved. The piece never makes that claim. It does the opposite — it strips the reader of the lie that there is anything to add. To confess "I am a thief, I am a murderer" in light of Matthew 5 is not legalism. It is agreement with the Judge. Calling that legalism redefines the word until it loses all meaning.
 
-- "There is none righteous, no, not one… there is none who does good, no, not one." (Rom 3:10–12)
-- "All have sinned and fall short of the glory of God." (Rom 3:23)
-- "The heart is deceitful above all things, and desperately sick; who can understand it?" (Jer 17:9)
-- "Every intent of the thoughts of his heart was only evil continually." (Gen 6:5)
-- "And you were dead in the trespasses and sins in which you once walked." (Eph 2:1–3)
-- "The mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot." (Rom 8:7)
-- "The natural man does not receive the things of the Spirit of God… he cannot understand them." (1 Cor 2:14)
+**"Advocacy of our unworthiness."**
+This is the charge worth pausing on, because Scripture itself is the advocate. It is not the writer.
 
-That is not a "rant." That is the apostolic and prophetic anthropology, in five different authors, across both Testaments. If you are accusing the piece of advocacy of unworthiness, you are accusing the canon of the same.
+- *"There is none righteous, no, not one… there is none who does good, no, not one."* (Rom 3:10–12)
+- *"All have sinned and fall short of the glory of God."* (Rom 3:23)
+- *"The heart is deceitful above all things, and desperately sick."* (Jer 17:9)
+- *"You were dead in the trespasses and sins in which you once walked."* (Eph 2:1)
+- *"The mind that is set on the flesh is hostile to God."* (Rom 8:7)
+- *"While we were still weak, at the right time Christ died for the ungodly."* (Rom 5:6)
 
-**3. The pattern of every saint in Scripture who saw God clearly.**
-The men and women whom Scripture commends did not protect themselves from the diagnosis. They walked straight into it:
+Five different authors. Both Testaments. One verdict. If "advocacy of our unworthiness" is the charge, the canon is the defendant, and Paul leads the line.
 
-- Job — "Behold, I am of small account; what shall I answer you? I lay my hand on my mouth… I despise myself, and repent in dust and ashes." (Job 40:4; 42:6)
-- Isaiah — "Woe is me! For I am lost; for I am a man of unclean lips, and I dwell in the midst of a people of unclean lips." (Isa 6:5)
-- Daniel — "O Lord, righteousness belongs to you, but to us belongs open shame." (Dan 9:7)
-- Ezra — "O my God, I am ashamed and blush to lift my face to you, my God." (Ezra 9:6)
-- David — "Against you, you only, have I sinned and done what is evil in your sight." (Ps 51:4)
-- Peter — "Depart from me, for I am a sinful man, O Lord." (Lk 5:8)
-- The Prodigal — "Father, I have sinned against heaven and before you. I am no longer worthy to be called your son." (Lk 15:18–19)
-- Paul — "Christ Jesus came into the world to save sinners, of whom I am the foremost." (1 Tim 1:15)
+(If you happen to be Reformed — your vocabulary leans that way — this charge is doubly strange, because *Total Depravity* is the doctrine you would confess on a Sunday and indict on a blog. The Heidelberg Catechism Q&A 5: *"I have a natural tendency to hate God and my neighbor."* That is the language. If it is yours, the piece is your catechism in plain English. If it isn't yours, no harm done — but Scripture stands either way.)
 
-Every one of these would, by the standard of your comment, qualify as a "tragically impaired religious voice." That should give you pause.
+**"Smashing the goodness of God."**
+God's goodness is not what you have substituted for it. His goodness includes His holiness, His justice, His honesty about the human heart, and His refusal to call peace where there is no peace (Jer 6:14; 8:11). The God whose goodness Scripture proclaims is the same God who said *"every intent of the thoughts of [man's] heart was only evil continually"* (Gen 6:5) and then drowned the world. He is the same God who, in the *same breath* as proclaiming His goodness to Moses — *"the LORD, the LORD, a God merciful and gracious"* — said *"who will by no means clear the guilty"* (Ex 34:6–7). You have kept half the verse.
 
-**4. Your own confessional tradition, if you are Reformed.**
-This is where the irony tightens. The Heidelberg Catechism, Lord's Day 2, Q&A 5:
+**"No good news, goodwill, or the good pleasure of the Father."**
+There is no good news without the bad news being true. Paul stakes the cross on this:
 
-> *"Can you keep all this perfectly? No, I have a natural tendency to hate God and my neighbor."*
+> *"While we were still sinners, Christ died for us."* (Rom 5:8)
 
-The Westminster Confession, chapter 6, paragraphs 2–4:
+> *"If righteousness were through the law, then Christ died for no purpose."* (Gal 2:21)
 
-> *"By this sin they fell from their original righteousness… and so became dead in sin, and wholly defiled in all the faculties and parts of soul and body… we are utterly indisposed, disabled, and made opposite to all good, and wholly inclined to all evil."*
+Erase the diagnosis and the cross becomes gratuitous. There is no one to save in a world of "fine." The good news only becomes *good* because the bad news is true. The piece does not omit the good news. It makes it intelligible.
 
-The Canons of Dort, Third and Fourth Heads, Article 3:
-
-> *"All men are conceived in sin, and by nature children of wrath, incapable of saving good, prone to evil, dead in sin, and in bondage thereto."*
-
-If those documents have any claim on you, you cannot also call the piece's diagnosis "smashing the goodness of God." You'd be smashing your own catechism.
-
-**5. The cross requires the diagnosis.**
-This is the point you cannot afford to miss. Paul reasons it like a surgeon:
-
-- "While we were still weak, at the right time Christ died for the *ungodly*." (Rom 5:6)
-- "God shows his love for us in that while we were still sinners, Christ died for us." (Rom 5:8)
-- "If righteousness were through the law, then Christ died for no purpose." (Gal 2:21)
-- "The word of the cross is folly to those who are perishing, but to us who are being saved it is the power of God." (1 Cor 1:18)
-
-Strip the diagnosis and you have not magnified grace. You have made the cross gratuitous. There is no one to save in a world of "fine." The good news only becomes good *because* the bad news is true.
-
-**6. The warning Scripture gives to the very posture in your comment.**
-Two texts, doctor. Sit with them.
-
-> *"They have healed the wound of my people lightly, saying, 'Peace, peace,' when there is no peace."* (Jer 6:14; 8:11)
-
-> *"For you say, I am rich, I have prospered, and I need nothing, not realizing that you are wretched, pitiable, poor, blind, and naked."* (Rev 3:17)
-
-Laodicea was not condemned for despair. It was condemned for the precise instinct that produced your comment — the inability to be told it is sick.
-
-**7. 1 John, by the apostle of love.**
+**"Waste of time."**
+Measure that by Yeshua's metric, not the comment box's. The tax collector in Luke 18 beat his breast and named himself a sinner — and Yeshua said he went home *justified*. The religious man congratulating himself on his goodness, the man allergic to being diagnosed, did not. The parable is not subtle about which posture pleases the Father.
 
 > *"If we say we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness."* (1 John 1:8–9)
 
-That sequence is the gospel order. Confession, then cleansing. You cannot invert it without losing both.
+That sequence — confession, then cleansing — is the gospel order. The piece is doing exactly what the apostle commands. If that is a waste of time, take it up with him.
 
-**8. In closing.**
-The piece is not a rant. It is the prophetic, apostolic, and confessional doctrine of sin, applied honestly to the writer's own life so the cross can mean something honestly. You are free to disagree. But please disagree with arguments and with Scripture, not by waving the word "legalism" at honesty until it goes away. The Reformer's slogan you may recognize applies here: *semper reformanda secundum verbum Dei.* The Word is on the table. Let's actually deal with it.
+Disagree if you must. But disagree with arguments and with Scripture, not by waving the word *legalism* at honesty until it goes away.
 
 Grace and peace,
 Sergio
