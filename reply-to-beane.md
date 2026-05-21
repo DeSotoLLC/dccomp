@@ -14,7 +14,7 @@ Short answer — citations to look up, not arguments to read.
 
 **Feasts:** Lev 23:2 (*"the appointed times of YHWH"* — His calendar). 1 Cor 5:7–8 (Paul to a Gentile church in Corinth: *"let us keep the feast"*). Acts 18:21, 20:6, 20:16 (Paul keeping the feasts after the cross). Acts 2 (the Spirit poured out on Shavuot — the timing is the point). Zech 14:16–19 (all nations keeping Tabernacles in the age to come).
 
-Look them up. The question isn't whether anyone is *required* to keep these. The question is whether they were given, kept, and inherited.
+God told us what pleases Him. Look them up. The question isn't whether anyone is *required* to keep these. The question is whether they were given, kept, and inherited.
 
 Shalom,
 Sergio
